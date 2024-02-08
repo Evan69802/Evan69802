@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Evan69802
+- 👀 I’m interested in anything interesting.
+- 🌱 I’m currently learning Stata and Python maybe.
+- 📫 How to reach me? Ans: E-mail is OK or WeChat with the same name.
